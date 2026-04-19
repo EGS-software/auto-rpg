@@ -1,1 +1,1 @@
-.
+FUNÇÕES PARA RPG D&D
